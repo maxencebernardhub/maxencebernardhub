@@ -67,12 +67,12 @@ or AI Solutions Architect roles — Toronto (hybrid) or remote (Canada, US, Fran
 
 ---
 
-## Let's talk
-
-💼 [LinkedIn](https://www.linkedin.com/in/bernardmaxence) · ✉️ maxence@maxencebernardhub.com
-
----
-
 **Off the keyboard** — I act in two French-speaking theatre companies in Toronto
 (which is why a room full of stakeholders doesn't scare me), play classical piano,
 and compete in tennis.
+
+---
+
+## Let's talk
+
+ [LinkedIn](https://www.linkedin.com/in/bernardmaxence) · ✉️  [maxence@maxencebernardhub.com](mailto:maxence@maxencebernardhub.com)

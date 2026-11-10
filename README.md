@@ -75,4 +75,4 @@ and compete in tennis.
 
 ## Let's talk
 
- [LinkedIn](https://www.linkedin.com/in/bernardmaxence) · ✉️  [maxence@maxencebernardhub.com](mailto:maxence@maxencebernardhub.com)
+💼 [LinkedIn](https://www.linkedin.com/in/bernardmaxence) · ✉️  [maxence@maxencebernardhub.com](mailto:maxence@maxencebernardhub.com)
